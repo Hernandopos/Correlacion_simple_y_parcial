@@ -1,0 +1,1 @@
+[Copia de Presentación análisis datos y estadísticas profesional versátil geométrica turquesa.pdf](https://github.com/user-attachments/files/22142019/Copia.de.Presentacion.analisis.datos.y.estadisticas.profesional.versatil.geometrica.turquesa.pdf)
